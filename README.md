@@ -1,4 +1,4 @@
-# 0xCipher | Terminal 💾
+#  profile  💾
 
 ---
 
